@@ -1,1 +1,1 @@
-Documentos suplementares do capítulo "Mais polarização, Menos democracia?"
+Documentos suplementares do capítulo "Mais polarização, menos democracia?"
