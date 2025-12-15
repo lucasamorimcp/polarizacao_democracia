@@ -1,1 +1,1 @@
-# polarizacao_democracia
+Documentos suplementares do capítulo "Mais polarização, Menos democracia?"
